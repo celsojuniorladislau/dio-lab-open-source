@@ -31,4 +31,4 @@
 
 ### 📫 Como me encontrar
 
-- 💼 [LinkedIn](www.linkedin.com/in/celso-tadeu-da-silva-ladislau-junior-26bbb41b2) 
+- 💼 [LinkedIn](www.linkedin.com/in/celso-tadeu-da-silva-ladislau-junior) 
